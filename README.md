@@ -1,0 +1,1 @@
+# praktika6_ikbo0417
